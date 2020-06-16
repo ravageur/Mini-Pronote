@@ -1,0 +1,1 @@
+C'est mon projet personnel auquel je tenais a faire, et que je mettrai a jour (Github me dégoute énormément pour ces pushs que j'en gaspille trop de temps a leurs conneries ... Faut me comprendre que je support plus tout ça :d)
